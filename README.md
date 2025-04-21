@@ -1,0 +1,1 @@
+This study aims at understanding the analysis of adverse events associated with pacemakers and the complications in patients after their implantation. This research has also been taken up as my Master's project coursework. 
